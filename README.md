@@ -1,8 +1,8 @@
 # Is High Shipping Cost Driving Profit Decline Across Regions?
-<img src="E Commerce.jpg" width="800">
+<img src="![E Commerce](https://github.com/user-attachments/assets/6e3837b9-bb93-4ea3-959c-39fdfe200ecb)" width="800">
 
 
-![E Commerce](https://github.com/user-attachments/assets/6e3837b9-bb93-4ea3-959c-39fdfe200ecb)
+
 
 
 
